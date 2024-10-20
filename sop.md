@@ -16,7 +16,7 @@
 
 ## 4. Clean and Organize
 - Do a quick sweep of the floor and wipe down tables and surfaces.
-- Refill self-serve stations (e.g., napkins, straws).
+- Refill self-serve stations (e.g., napkins, straws, lids).
 - Restock products and ensure displays are organized and appealing.
   - Pretzel bagels and cookies are stored in the green boxes in room temperature.
   - Other products are stored in the freezer in the kitchen.
