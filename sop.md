@@ -10,6 +10,7 @@
 
 ## 3. Initial Equipment Setup
 - Turn on the espresso machine because it takes around 15 minutes to fully set up.
+- Take coffee equipments (e.g. graduated shot glass, milk pitchers) from the dishwashers and warm them up on the espresso rack.
 - Turn on lights (behind the TV), music, and TV displays.
 - Turn on the ice machine.
 
