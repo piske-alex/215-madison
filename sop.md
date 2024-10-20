@@ -32,6 +32,7 @@
 - Move the bench to the patio.
   - Make sure the clamps are in place to secure the bench.
 - Unlock the front door for customers and prepare for service.
+- Erect the bulliten board perpendicular to the street.
 
 # Reheating SOP
 ## Defrost
@@ -70,6 +71,7 @@
 - Turn off appliances (e.g., ovens, coffee machine, ice machine).
 - Turn off music and TV.
 - Retrieve the bench from the patio.
+- Retrieve the bulliten board from the street.
 - Switch off the open sign and retrieve the hanging open sign.
 
 ## 6. Final Store Check
