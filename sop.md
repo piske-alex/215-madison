@@ -1,7 +1,7 @@
 # Store Opening SOP
 
 ## 1. Preparation Before Arrival
-- Find the store **front door** key in the lockbox at the back door.
+- Find the store **back door** key in the lockbox at the back door.
 - Arrive at least 15 minutes before the store's opening time.
 
 ## 2. Unlocking and Entry
